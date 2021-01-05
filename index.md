@@ -2,16 +2,19 @@
 
 Hello Cosmos!!!
 
-Enjoy Thriving Evolvements...
-- [COSMIC SPACE](http://hackthecosmos.cosmicspace/)
-- [DECENTRALIZED DNS](http://dnsdesigns.decentralizeddns/)
-- [FOR BOB AND DOUG IN SPACE](http://dragon.forbobanddouginspace/)
-- [DNS DESIGNS](http://decentralizeddns.dnsdesigns/)
-- [NETWORK MANAGER](http://admin.networkmanager/)
-- [SHAPING REALITY](http://reddragonmatrix.shapingreality/)
+ # [Own The Web 3](http://official.owntheweb3.hns.to/) we Consciously CHOOSE to Bend and [SHAPE Reality](http://innerinetcompany.shapereality.hns.to/) while customizing [The Root Zone](http://therootzone.hns.to/) File of the Internet with our [HNS-DOMAINS](http://home.hns-domains.hns.to/).
 
- For Top Level Domains Grow Here; [Handshake](https://handshake.org/) and [NameBase](https://namebase.io/) 
-![image](https://user-images.githubusercontent.com/37987346/94328166-2b8f5f80-ff7e-11ea-9276-41fcf99336ff.png)
+
+Enjoy Thriving Evolvements...
+- [COSMIC SPACE](http://hackthecosmos.cosmicspace.hns.to/) a Handshake Domain
+- [DECENTRALIZED DNS](http://dnsdesigns.decentralizeddns.hns.to/) a Handshake Domain
+- [FOR BOB AND DOUG IN SPACE](http://dragon.forbobanddouginspace.hns.to/) a Handshake Domain
+- [DNS DESIGNS](http://decentralizeddns.dnsdesigns.hns.to/) a Handshake Domain
+- [NETWORK MANAGER](http://admin.networkmanager.hns.to/) a Handshake Domain
+- [SHAPING REALITY](http://reddragonmatrix.shapingreality.hns.to/) a Handshake Domain
+
+ # Learn what Handshake(HNS) is Here; [Handshake](https://handshake.org/) and [NameBase](https://namebase.io/) 
+
 
 [Buy,Sell or Trade With Paxful Kiosk here
 ![image](https://user-images.githubusercontent.com/37987346/97064635-5a94f300-1575-11eb-93ae-fc71560b1571.png)](https://paxful.com/roots/buy-bitcoin/index?kiosk=WDZdGMqXk7M)
