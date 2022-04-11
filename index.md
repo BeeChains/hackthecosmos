@@ -14,8 +14,8 @@ Enjoy Thriving Evolvements...
 
  # Learn what Handshake(HNS) is Here; [Handshake](https://handshake.org/) and [NameBase](https://namebase.io/) 
 
-
+# Or go [Break The Code](https://btc2.tech/ThZWCx)
 
 # Channel within [#innerinet&company](https://webchat.hybridirc.com/#innerinet&company)
 <iframe src="https://kiwiirc.hybridirc.com/#innerinet&company" allow="microphone; camera; display-capture; fullscreen" style="border:0; width:100%; height:500px;"></iframe>
-# Or go [Break The Code](https://btc2.tech/ThZWCx)
+
